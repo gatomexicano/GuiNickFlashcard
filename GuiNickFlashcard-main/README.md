@@ -1,2 +1,0 @@
-# GuiNickFlashcard
-Prostituiçãogratuita.com
